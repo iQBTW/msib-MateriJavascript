@@ -1,1 +1,1 @@
-~Rizqy Arniza~
+Rizqy Arniza
