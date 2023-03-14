@@ -1,1 +1,1 @@
-Rizqy Arniza_UMJ_AhmadFathanSyakir
+RizqyArniza_UMJ_AhmadFathanSyakir
